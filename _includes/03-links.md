@@ -1,0 +1,1 @@
+[All the Zebras](https://www.google.com/search?rlz=1C1SQJL_enUS782US782&biw=1280&bih=610&tbm=isch&sa=1&ei=NBPrW6HYIo3L_Qaj2LzACw&q=zebra&oq=zebra&gs_l=img.3...0.0..348363...0.0..0.0.0.......1......gws-wiz-img.AQROIsjNQpw)
